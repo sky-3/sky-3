@@ -4,7 +4,7 @@ welcome to hell
 
 activity on github every 3 months
 
-also i play taiko no tatsujin and suck at it
+also i play iidx and suck at it
 
-pronouns: she/they/it
+pronouns: it/its
 
